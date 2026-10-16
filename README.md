@@ -1,0 +1,2 @@
+# kingdra-grub-theme
+djsfoidjfidufdhsfisufd
